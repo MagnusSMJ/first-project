@@ -1,2 +1,5 @@
 Magnus Semb Maalen-Johansen
-hitMeup@MyHouse.com
+hitMeup@My@@@@@bishHouse.com
+dikcikpikknicjk
+Nicholas Bodvin Sellevåg
+41758174
